@@ -1,1 +1,1 @@
-"# Emily stock 10 physical assessment"¡@
+# Emily stock 10 physical assessment
